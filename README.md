@@ -2,4 +2,4 @@
 1st preliminary variant for consideration.
 NOT APPROVED
 
-No Final approved Items of menu
+No Final approved Items of menu... :(((
